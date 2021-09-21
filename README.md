@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VirtualD3
+- 👀 I’m interested in video games development.
+- 🌱 I’m currently learning at the UOC university.
+- 💞️ I’m looking to collaborate on, "soon".
+- 📫 How to reach me, by email: aromero@virtuald3.com
